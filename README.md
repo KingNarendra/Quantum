@@ -1,0 +1,2 @@
+# Quantum
+MAKLU W ENTOT SINI BIPAS😹😹😹
